@@ -1,1 +1,1 @@
-# * Achtsam morden * mit Björn Diemel
+# Achtsam morden mit Björn Diemel
