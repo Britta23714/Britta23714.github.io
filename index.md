@@ -9,3 +9,10 @@ Björn Diemel, ein Anwalt für Vertrags- und Strafrecht, hat genau einen Mandant
 * liebevoll im privaten Kontext
 * einfallsreich
 * Kaffeeliebhaber
+
+Herr Diemel sagt:
+
+> Achtsamkeit ist die unvoreingenommene Lebenseinstellung,
+> die wir an Kindern so bewundern. Kinder leben im Moment.
+> Ein im Spiel versunkenes Kind genießt den Augenblick.
+> Lernen Sie unvoreingenommen zu sein, wie ein Kind.
